@@ -1,0 +1,3 @@
+- 👋 Hello Im @Amoo-zanjirbuf
+- ♥ I Love Sharing My Codes And Script With People
+- 
